@@ -3,4 +3,4 @@
 #### Cheat: https://cheats.apul.pro/nascar/heat/5/,
 #### Loader: https://cheats.apul.pro/loaders/bepinex/,
 
-##### Alternative Loader/injector: https://cheats.apul.pro/injectors/extremeinjector/ (MAY NOT BE WORKING FOR MOST GAMES)
+##### Alternative Loader/injector: https://cheats.apul.pro/injectors/extremeinjector/ (MAY NOT BE WORKING FOR MOST GAMES),
